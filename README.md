@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @NooB-Ronit
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning gaming🤣
+- 💞️ I’m looking to collaborate on teenager
+- 📫 How to reach me iamronitmishra@gmail.com
+- 😎 Favourite Game is Minecraft and Asphalt 8
+- 🎶 Favourite singer is Neffex
+- 😁 Favourite number is 69
+- !btw I can teach you html and css for free on discord!
